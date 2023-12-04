@@ -6,6 +6,7 @@ Venice Malagueno
 He is well-known for his gothic and dark short stories and his tragic life. 
 
 His famous works: 
+
 ![Facade](https://prodimage.images-bn.com/pimages/0681410194987_p0_v1_s1200x630.jpg)
 
 
