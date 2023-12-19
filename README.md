@@ -15,11 +15,11 @@ Princess Diana of Wales, formerly Lady Diana Frances Spencer, was born on the 1s
 
 At the age of 16, she left school and at the age of 18, she moved to London. 
 
-![Facade](https://www.google.com/url?sa=i&url=https%3A%2F%2Fharpersbazaar.com.au%2Fprincess-diana-apartment-for-sale-in-london%2F&psig=AOvVaw1sP1Qz_Y8ksaIseHz5a6fa&ust=1703083951230000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCJCl8evdm4MDFQAAAAAdAAAAABAH) 
+![Facade](https://www.cathaypacific.com/content/dam/focal-point/cx/inspiration/2017/08/Diana-London-4.renditionimage.900.900.jpg) 
 
 ## Her Education
 
-![Facade!](https://www.cathaypacific.com/content/dam/focal-point/cx/inspiration/2017/08/Diana-London-4.renditionimage.900.900.jpg) 
+![Facade!](https://smapse.com/storage/2017/05/riddlesworth-hall-school-7.jpg) 
 
 
 *Edgar Allan Poe's story "The Tell-Tale Heart" is famous for its dark and straightforward theme. It is about an unknown narrator who kills an elderly man because of his peculiar eye. The said narrator is haunted by the man's heartbeat for the rest of his life.* 
