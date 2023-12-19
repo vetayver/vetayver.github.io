@@ -16,9 +16,6 @@ Princess Diana of Wales, formerly Lady Diana Frances Spencer, was born on the 1s
 At the age of 16, she left school and at the age of 18, she moved to London. 
 
 
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/x-387NMCR6w?si=S2JNNzR8ce9mE_sT&amp;start=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
 ![Facade](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.cathaypacific.com%2Fcx%2Fen_TW%2Finspiration%2Ftravel%2Fdianas-london-how-the-city-of-a-princess-changed-forever.html&psig=AOvVaw1wRpq92Dj38Dhc2_UkNlaW&ust=1703083479223000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCMDXh43cm4MDFQAAAAAdAAAAABAD) 
 
 
