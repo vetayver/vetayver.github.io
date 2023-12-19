@@ -3,11 +3,15 @@ Venice Malagueno
 
 # The People's Icon, Diana the Princess of Wales 
 
+
 ![Facade](https://m.media-amazon.com/images/M/MV5BMjEyNzMyNTQ4M15BMl5BanBnXkFtZTcwNjA0NjI5NA@@._V1_.jpg) 
 
+Her childhood:
 
+Princess Diana of Wales, formerly Lady Diana Frances Spencer, was born on the 1st of July 1961 at Park House near Sandringham, Norfolk. She was the 3rd of her family. Lady Sarah McCorquodale and Lady Jane Fellowes were her older sisters. Her younger brother is Charles Spencer. 
 
- She is well-known for her humanitarian work and being the people' 
+![Facade](https://people.com/thmb/5ttaLyDCk_F4mSnsB0YrK-IAF9k=/750x0/filters:no_upscale():max_bytes(150000):strip_icc():focal(1039x419:1041x421):format(webp)/princess-diana-siblings-0443fa1ce659423ea9808d6ec3fd25c8.jpg) 
+
 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/x-387NMCR6w?si=S2JNNzR8ce9mE_sT&amp;start=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
