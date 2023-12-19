@@ -1,12 +1,12 @@
 # vetayver.github.io
 Venice Malagueno
 
-# The People's Icon, Diana the Princess of Wales 
+### The People's Icon, Diana the Princess of Wales 
 
 
 ![Facade](https://m.media-amazon.com/images/M/MV5BMjEyNzMyNTQ4M15BMl5BanBnXkFtZTcwNjA0NjI5NA@@._V1_.jpg) 
 
-Her childhood:
+## Her childhood:
 
 Princess Diana of Wales, formerly Lady Diana Frances Spencer, was born on the 1st of July 1961 at Park House near Sandringham, Norfolk. She was the 3rd of her family. Lady Sarah McCorquodale and Lady Jane Fellowes were her older sisters. Her younger brother is Charles Spencer. 
 
