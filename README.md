@@ -1,11 +1,13 @@
 # vetayver.github.io
 Venice Malagueno
 
-# The People's Icon 
+# The People's Icon, Diana the Princess of Wales 
 
-![Facade](https://people.com/thmb/k3cRJk3LiA3wzeIJ8qs4T-4Zm2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():focal(688x0:690x2)/princess-di-1-2000-642488ee339c436dbc2d453a53819214.jpg) 
+![Facade](https://m.media-amazon.com/images/M/MV5BMjEyNzMyNTQ4M15BMl5BanBnXkFtZTcwNjA0NjI5NA@@._V1_.jpg) 
 
-Princess Diana, the Princess of Wales.
+
+
+ She is well-known for her humanitarian work and being the people' 
 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/x-387NMCR6w?si=S2JNNzR8ce9mE_sT&amp;start=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
