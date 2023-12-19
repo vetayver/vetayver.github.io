@@ -1,22 +1,26 @@
 # vetayver.github.io
 Venice Malagueno
 
-### The People's Icon, Diana the Princess of Wales 
+## The People's Icon, Diana the Princess of Wales 
 
 
 ![Facade](https://m.media-amazon.com/images/M/MV5BMjEyNzMyNTQ4M15BMl5BanBnXkFtZTcwNjA0NjI5NA@@._V1_.jpg) 
 
-## Her childhood:
+### Her childhood:
+
+
+![Facade](https://people.com/thmb/5ttaLyDCk_F4mSnsB0YrK-IAF9k=/750x0/filters:no_upscale():max_bytes(150000):strip_icc():focal(1039x419:1041x421):format(webp)/princess-diana-siblings-0443fa1ce659423ea9808d6ec3fd25c8.jpg) 
 
 Princess Diana of Wales, formerly Lady Diana Frances Spencer, was born on the 1st of July 1961 at Park House near Sandringham, Norfolk. She was the 3rd of her family. Lady Sarah McCorquodale and Lady Jane Fellowes were her older sisters. Her younger brother is Charles Spencer. 
 
-![Facade](https://people.com/thmb/5ttaLyDCk_F4mSnsB0YrK-IAF9k=/750x0/filters:no_upscale():max_bytes(150000):strip_icc():focal(1039x419:1041x421):format(webp)/princess-diana-siblings-0443fa1ce659423ea9808d6ec3fd25c8.jpg) 
+At the age of 16, she left school and at the age of 18, she moved to London. 
 
 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/x-387NMCR6w?si=S2JNNzR8ce9mE_sT&amp;start=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
-![Facade](https://cdn.kobo.com/book-images/f9718bab-f75c-415f-ad3f-a9776d549139/1200/1200/False/the-tell-tale-heart-63.jpg)
+![Facade](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.cathaypacific.com%2Fcx%2Fen_TW%2Finspiration%2Ftravel%2Fdianas-london-how-the-city-of-a-princess-changed-forever.html&psig=AOvVaw1wRpq92Dj38Dhc2_UkNlaW&ust=1703083479223000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCMDXh43cm4MDFQAAAAAdAAAAABAD) 
+
 
 *Edgar Allan Poe's story "The Tell-Tale Heart" is famous for its dark and straightforward theme. It is about an unknown narrator who kills an elderly man because of his peculiar eye. The said narrator is haunted by the man's heartbeat for the rest of his life.* 
 
