@@ -44,5 +44,6 @@ She worked as a kindergarten teacher at the Young England School in Pimlico.
 
 Princess Diana and Prince Charles were married at Paul's Cathedral in London on 29 July 1981. This ceremony was broadcast all over the world, drawing approximately 1 billion worldwide and hundreds of thousands in Buckingham Palace. 
 
-![Facade](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fyeargan54%2Fprincess-diana%2F&psig=AOvVaw0BrDt_z-mitdiETHrV7u2L&ust=1703128459913000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCJii1tGDnYMDFQAAAAAdAAAAABAR) 
+![Facade](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.gettyimages.com%2Fphotos%2Frobert-runcie-archbishop-of-canterbury&psig=AOvVaw0BrDt_z-mitdiETHrV7u2L&ust=1703128459913000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCJii1tGDnYMDFQAAAAAdAAAAABAZ) 
+
 Dr. Runcie, the Archbishop of Canterbury, and the Dean of St. Paul's performed the marriage ceremony; prayers were read aloud by clergy members of various denominations. 
