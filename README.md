@@ -77,4 +77,3 @@ Following her marriage to Prince Harry, the Princess of Wales started participat
 
 On August 31, 1997, Diana, Princess of Wales, and Dodi Al-Fayed, her boyfriend, perished in a car accident in Paris. Henri Paul, their inebriated driver, also perished. In public spaces, many people left her cards, candles, flowers, and heartfelt notes. In London, she had a lavish funeral. Diana was honoured with concerts soon after her passing. Along with many others, Elton John performed at the concerts. For Diana's memorial, John re-released "Candle in the Wind," one of his songs.
 
-Due to 
