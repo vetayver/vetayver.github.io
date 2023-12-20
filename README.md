@@ -47,3 +47,7 @@ Princess Diana and Prince Charles were married at Paul's Cathedral in London on 
 ![Facade](https://media.gettyimages.com/id/109326196/photo/robert-runcie-the-archbishop-of-canterbury-officiates-at-the-wedding-of-charles-prince-of.jpg?s=612x612&w=gi&k=20&c=_G2x1m2qNavq6sXLRQYsKMyu3GqKp8PV-hsMPPaMQuw=) 
 
 Dr. Runcie, the Archbishop of Canterbury, and the Dean of St. Paul's performed the marriage ceremony; prayers were read aloud by clergy members of various denominations. 
+
+The music played at the wedding:
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/1jTSBSHKNKybFegdoBQ6M1?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
