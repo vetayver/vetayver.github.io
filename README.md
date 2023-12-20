@@ -1,12 +1,12 @@
 # vetayver.github.io
 Venice Malagueno
 
-## The People's Icon, Diana the Princess of Wales 
+# The People's Icon, Diana the Princess of Wales 
 
 
 ![Facade](https://m.media-amazon.com/images/M/MV5BMjEyNzMyNTQ4M15BMl5BanBnXkFtZTcwNjA0NjI5NA@@._V1_.jpg) 
 
-### Her childhood:
+## Her childhood:
 
 
 ![Facade](https://people.com/thmb/5ttaLyDCk_F4mSnsB0YrK-IAF9k=/750x0/filters:no_upscale():max_bytes(150000):strip_icc():focal(1039x419:1041x421):format(webp)/princess-diana-siblings-0443fa1ce659423ea9808d6ec3fd25c8.jpg) 
