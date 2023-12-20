@@ -6,6 +6,9 @@ Venice Malagueno
 
 ![Facade](https://m.media-amazon.com/images/M/MV5BMjEyNzMyNTQ4M15BMl5BanBnXkFtZTcwNjA0NjI5NA@@._V1_.jpg) 
 
+A member of the British royal family, Diana, Princess of Wales was born Diana Frances Spencer and lived from July 1, 1961, to August 31, 1997. She was the mother of Princes William and Harry and the first wife of Charles III, the prince of Wales at the time. She became a global icon and enjoyed enduring popularity as a result of her activism and glitz.
+
+
 ## Her childhood:
 
 
@@ -68,6 +71,10 @@ After 300 years, the Princess became the first Englishwoman to wed an heir appar
 
 Following her marriage to Prince Harry, the Princess of Wales started participating in the official duties of the royal family. both during and following her union. She travelled with Prince Harry to South Korea, Australia, and New Zealand, among other places. In 1982, the Princess made her first solo international tour and stood in for The Queen at Princess Grace of Monaco's state funeral. During her marriage, she presided over or served as a patron of more than 100 charities, demonstrating her commitment to charitable work. Following her divorce, she gave up most of her charitable positions and other favours, as well as all of her appointments with the military. She continued to support the Hospital for Sick Children, Leprosy Mission, English National Ballet, National Aids Trust, and Centerpoint. 
 
-## After Marriage
+## Death 
+
+![Facade](https://upload.wikimedia.org/wikipedia/commons/d/df/Flowers_for_Princess_Diana%27s_Funeral.jpg)
+
+On August 31, 1997, Diana, Princess of Wales, and Dodi Al-Fayed, her boyfriend, perished in a car accident in Paris. Henri Paul, their inebriated driver, also perished. In public spaces, many people left her cards, candles, flowers, and heartfelt notes. In London, she had a lavish funeral. Diana was honoured with concerts soon after her passing. Along with many others, Elton John performed at the concerts. For Diana's memorial, John re-released "Candle in the Wind," one of his songs.
 
 Due to 
