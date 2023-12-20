@@ -57,3 +57,6 @@ The music played at the wedding:
 
 
 ![Facade](https://people.com/thmb/m5jwriC4JSqX03g6Ut3mihr91Eg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():focal(899x302:901x304)/princess-diana-wedding-dress-1-4858baf5147247e68756465f745f0362.jpg) 
+
+
+After 300 years, the Princess became the first Englishwoman to wed an heir apparent to the throne. Her veil was held in place by the Spencer family's diamond tiara, and she carried a bouquet of gardenias, lilies-of-the-valley, white freesia, golden roses, white orchids, and stephanotis. Her silk taffeta gown had a 25-foot train designed by the Emanuels.
