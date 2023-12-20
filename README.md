@@ -60,3 +60,14 @@ The music played at the wedding:
 
 
 After 300 years, the Princess became the first Englishwoman to wed an heir apparent to the throne. Her veil was held in place by the Spencer family's diamond tiara, and she carried a bouquet of gardenias, lilies-of-the-valley, white freesia, golden roses, white orchids, and stephanotis. Her silk taffeta gown had a 25-foot train designed by the Emanuels.
+
+
+## Charities 
+
+![Facade](https://cdn.aarp.net/content/dam/aarp/entertainment/celebrities/08/1140-princess-diana-charity-students-neasden.jpg) 
+
+Following her marriage to Prince Harry, the Princess of Wales started participating in the official duties of the royal family. both during and following her union. She travelled with Prince Harry to South Korea, Australia, and New Zealand, among other places. In 1982, the Princess made her first solo international tour and stood in for The Queen at Princess Grace of Monaco's state funeral. During her marriage, she presided over or served as a patron of more than 100 charities, demonstrating her commitment to charitable work. Following her divorce, she gave up most of her charitable positions and other favours, as well as all of her appointments with the military. She continued to support the Hospital for Sick Children, Leprosy Mission, English National Ballet, National Aids Trust, and Centerpoint. 
+
+## After Marriage
+
+Due to 
